@@ -116,7 +116,7 @@
 
 ◎ 疑点九：“王进东”的打坐似是而非。在中央台的电视画面中，一个叫“王进东”的男子以法轮功特有的坐姿在自焚，以此来印证此人是法轮功学员。但法轮功学员表示，王进东的散盘姿式根本不算是法轮功的打坐方式。法轮功要求的是双盘，至少也得是单盘，只有初学者或有特别困难的人，才能勉强先采用散盘。
 <div align="center">
-<img src="http://i.epochtimes.com/assets/uploads/2017/07/3.jpg" width="600px"/><br/>
+<img src="http://gfw-breaker.win/imgs/falsefire.gif" width="600px"/><br/>
 天安门自焚伪案中自焚时的王进东，腿上雪碧瓶完好无损，警察拿着所谓的“防火毯”垂在身后摆拍
 </div><br/>
 
