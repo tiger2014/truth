@@ -46,7 +46,7 @@
 然而，1998年国家体育总局组织北京、武汉、大连及广东省的医学专家，对近三万五千名法轮功学员做了五次医学调查，证明了法轮功祛病健身有效率高于百分之九十八。
 <div align="center">
 <img src="http://package.minghui.org/mh/packages/1400/images/02-oct-1998-falun-gong-health-benefits-medical-report-graph-bar-chart.png" width="600px"/><br/>
-国家体育总局对北京法轮功学员做的医学调查
+1998年国家体育总局对北京法轮功学员做的医学调查
 </div><br/>
 
 那么，这“1400例”到底是怎么回事呢？以下列举一些典型案例，看看中共是如何编造假新闻，栽赃诬陷法轮功的。
