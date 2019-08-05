@@ -68,7 +68,7 @@
 
 #### 西方政界觉醒抵制中共
 
-[《九评共产党》](https://github.com/gfw-breaker/9ping.md/blob/master/README.md)、[《共产主义的终极目的》](https://github.com/gfw-breaker/gczydzjmd.md/blob/master/README.md)、[《魔鬼在统治我们的世界》](https://github.com/gfw-breaker/mgztzwmdsj.md/blob/master/README.md)等奇书问世后，海内外政界、商界、普通民众对共产主义有了深刻的认识，开始抛弃对中共仅存的一丝幻想。
+[《九评共产党》](../../../../9ping.md/blob/master/README.md)、[《共产主义的终极目的》](../../../../gczydzjmd.md/blob/master/README.md)、[《魔鬼在统治我们的世界》](../../../../mgztzwmdsj.md/blob/master/README.md)等奇书问世后，海内外政界、商界、普通民众对共产主义有了深刻的认识，开始抛弃对中共仅存的一丝幻想。
 
 10月4日，美国副总统彭斯在华盛顿智库哈德逊研究所发表重要演说，他抨击中共大力干预美国政策和内政，并企图改变国际秩序。彭斯对中共强硬讲话，引起各界热烈反响。
 <div align="center">
